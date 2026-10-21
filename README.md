@@ -1,4 +1,4 @@
-¡Hola! me llamo Aloude y este es mi portafolio que voya  enseñar mis proyectos en Godot o otros lenguajes de programacion para que puedan ver los avances y me puedan
+¡Hola! me llamo Aloude y este es mi portafolio que voy a  enseñar mis proyectos en Godot o otros lenguajes de programacion para que puedan ver los avances y me puedan
 calificar mis proyectos que opinan, mi primer proyecto que estoy desarrollando este año 2026 es un juego basado estilo venezolano que se llama Chaves's Ghost House
 traducido español es, Escapa la mancion del comandate. y espero que puedan apoyarme mis proyectos y me puedan seguir mis redes.
 
