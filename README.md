@@ -13,6 +13,6 @@ A tannier inorror capful games and fronges, and concept art lert.
 𝗫(𝗧𝘄𝗶𝘁𝘁𝗲𝗿): @𝗔𝗹𝗼𝘂𝗱𝗲
 𝗗𝗶𝘀𝗰𝗼𝗿𝗱: dsc.gg/aethergamelabs 
 𝘁𝗶𝗸𝘁𝗼𝗸 𝗽𝗲𝗿𝘀𝗼𝗻𝗮𝗹: @𝗔𝗹𝗼𝘂𝗱𝗲
-𝘁𝗶𝗸𝘁𝗼𝗸: *también puedes seguirme en* Aether Game Labs.
+𝘁𝗶𝗸𝘁𝗼𝗸: *también puedes seguirme en* 𝗔𝗲𝘁𝗵𝗲𝗿 𝗚𝗮𝗺𝗲 𝗟𝗮𝗯𝘀
 
 𝗚𝗿𝗮𝗰𝗶𝗮𝘀 𝗽𝗼𝗿 𝗟𝗲𝗲𝗿. 😀 
