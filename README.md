@@ -1,12 +1,22 @@
-¡Hola! me llamo Emanuel y mis redes soy Aloude pero me puedes llamar Aloude. Este es mi portafolio mas bien es mi Curriculum digital en esta plataforma. que voy a  enseñar mis proyectos en Godot o otros lenguajes de programacion para que puedan ver los avances y me puedan
-calificar mis proyectos que opinan, mi primer proyecto que estoy desarrollando este año 2026 es un juego basado estilo venezolano que se llama Chaves's Ghost House
-traducido español es, Escapa la mancion del comandate. y espero que puedan apoyarme mis proyectos y me puedan seguir mis redes.
+𝗤𝘂𝗶𝗲𝗻 𝘀𝗼𝘆:
+¡Holaaa! Soy Emanuel, conocido en redes como 𝗔𝗹𝗼𝘂𝗱𝗲 Soy desarrollador de videojuegos y este es mi portafolio digital, donde muestro mis proyectos y avances.
 
-Mis redes:
-YouTube: Aloude
-X(Twitter): Aloude
-TikTok: Aloude
-Tiktok: Aether Game Labs
-Discord: https:dsc.gg/aethergamelabs
+𝗣𝗿𝗼𝘆𝗲𝗰𝘁𝗼𝘀:
+Mis proyectos principales están desarrollados en 𝗚𝗼𝗱𝗼𝘁 y otros lenguajes. Actualmente, estoy enfocado en mi primer gran proyecto para 2026 o 2027:
 
-Gracias por Leer. :D
+𝗖𝗵𝗮𝘃𝗲𝘇 𝗚𝗵𝗼𝘀𝘁 𝗛𝗼𝘂𝘀𝗲(𝗘𝘀𝗰𝗮𝗽𝗮 𝗱𝗲 𝗹𝗮 𝗠𝗮𝗻𝗰𝗶𝗼𝗻 𝗱𝗲𝗹 𝗖𝗼𝗺𝗮𝗻𝗱𝗮𝘁𝗲)
+A survival horror game with a unique Venezuela theme.
+A tannier inorror capful games and fronges, and concept art lert.
+
+𝗥𝗲𝗱𝗲𝘀 𝗦𝗼𝗰𝗶𝗮𝗹𝗲𝘀:
+YouTube: @Aloude
+X(Twitter): @Aloude
+Discord dsc.gg/aethergamelabs 
+Tiktok: @Aloude
+𝗥𝗲𝗱𝗲𝘀 𝗦𝗼𝗰𝗶𝗮𝗹𝗲𝘀:
+YouTube: @Aloude
+X(Twitter): @Aloude
+Discord: dsc.gg/aethergamelabs 
+
+𝗥𝗲𝗱𝗲𝘀 𝗦𝗼𝗰𝗶𝗮𝗹𝗲𝘀:
+
