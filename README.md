@@ -13,10 +13,5 @@ YouTube: @Aloude
 X(Twitter): @Aloude
 Discord dsc.gg/aethergamelabs 
 Tiktok: @Aloude
-𝗥𝗲𝗱𝗲𝘀 𝗦𝗼𝗰𝗶𝗮𝗹𝗲𝘀:
-YouTube: @Aloude
-X(Twitter): @Aloude
-Discord: dsc.gg/aethergamelabs 
 
-𝗥𝗲𝗱𝗲𝘀 𝗦𝗼𝗰𝗶𝗮𝗹𝗲𝘀:
 
