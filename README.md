@@ -9,9 +9,10 @@ A survival horror game with a unique Venezuela theme.
 A tannier inorror capful games and fronges, and concept art lert.
 
 𝗥𝗲𝗱𝗲𝘀 𝗦𝗼𝗰𝗶𝗮𝗹𝗲𝘀:
-YouTube: @Aloude
-X(Twitter): @Aloude
-Discord dsc.gg/aethergamelabs 
-Tiktok: @Aloude
+𝗬𝗼𝘂𝗧𝘂𝗯𝗲 : @𝗔𝗹𝗼𝘂𝗱𝗲
+𝗫(𝗧𝘄𝗶𝘁𝘁𝗲𝗿): @𝗔𝗹𝗼𝘂𝗱𝗲
+𝗗𝗶𝘀𝗰𝗼𝗿𝗱: dsc.gg/aethergamelabs 
+𝘁𝗶𝗸𝘁𝗼𝗸 𝗽𝗲𝗿𝘀𝗼𝗻𝗮𝗹: @𝗔𝗹𝗼𝘂𝗱𝗲
+𝘁𝗶𝗸𝘁𝗼𝗸: *también puedes seguirme en* Aether Game Labs.
 
-
+𝗚𝗿𝗮𝗰𝗶𝗮𝘀 𝗽𝗼𝗿 𝗟𝗲𝗲𝗿. 😀 
